@@ -1,1 +1,6 @@
 # learninggit001
+
+friooifsjosjovcx
+isdjfoidsjfoifdsof
+ifjsiodsjoids
+vjsoivjsivsvis
